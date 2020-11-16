@@ -1,0 +1,1 @@
+chicken, chilli powder, curd, ginger-garilic paste, honey, tandori masala, chasturi methi , salt , turmeric, pepper powder, coriender powder, garam-masale, lemon,oil.
